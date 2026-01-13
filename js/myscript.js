@@ -1,0 +1,1 @@
+No Content: https://iphone.bgmi-mobiles.com/js/myscript.js
